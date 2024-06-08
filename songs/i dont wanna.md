@@ -17,7 +17,7 @@ When I gotta tinkle I just tinkle in my pants
 I got to go! ...  
   
 #### v:  
-Naked it in the yard when I really got to doo  
+Naked in the yard when I really got to doo  
 Bow my legs and go all the doggies do it too  
   
 Waving to my neighbors and waving to my friends  
@@ -30,10 +30,10 @@ I got to go!
 I don't wanna I don't wanna I don't want to go  
 I don't wanna but I gotta really got to go  
 Waving to my neighbors and waving to my friends  
+Went inside to potty 'cause i love my parents
   
 #### c:  
-I got to go!  
-I got to go!  
+I got to go! ... 
   
 #### o: [f c \]  
 So let's go!  
