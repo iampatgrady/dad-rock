@@ -14,7 +14,7 @@ Going to the potty really doesn't make sense
 When I gotta tinkle I just tinkle in my pants  
   
 #### c: [b. c - - - ]  
-I got to go! ...  
+I got to go! ...  go!
   
 #### v:  
 Naked in the yard when I really got to doo  
@@ -24,12 +24,13 @@ Waving to my neighbors and waving to my friends
 When I have to tinkle I just do it through the fence  
 
 #### c:  
-I got to go!  
+I got to go! ... go!
   
 #### v:  
 I don't wanna I don't wanna I don't want to go  
 I don't wanna but I gotta really got to go  
-Waving to my neighbors and waving to my friends  
+  
+said goodbye to neighbors and said goodbye to friends  
 Went inside to potty 'cause i love my parents
   
 #### c:  
