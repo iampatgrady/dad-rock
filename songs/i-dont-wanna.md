@@ -42,7 +42,7 @@ Went inside to potty 'cause i love my parents
 #### c:  
 I got to go! ... 
   
-#### o: [f c \]  
+#### o: [c g \]  
 So let's go!  
 
 
