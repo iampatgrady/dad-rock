@@ -25,7 +25,7 @@ When I have to tinkle I just do it through the fence
 #### c:  
 I got to go! ... go!
 
-### b: [ am c g - ]
+#### b: [ am c g - ]
 when i go outside i get sighs
 when i go in the potty i get high-fives...
 
