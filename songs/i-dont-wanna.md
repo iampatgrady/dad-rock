@@ -5,14 +5,14 @@
   </a>
 </p>
 
-#### v: [c - am(f) c - f g c]  
+#### v: [g - c g g c d g ]  
 I don't wanna I don't wanna I don't want to go  
 I don't wanna but I gotta really got to go  
   
 Going to the potty really doesn't make sense  
 When I gotta tinkle I just tinkle in my pants  
   
-#### c: [b. c - - - ]  
+#### c: [g - - g,am,b g - c,b,am,g ]  
 I got to go! ...  go!
   
 #### v:  
@@ -21,6 +21,13 @@ Bow my legs and go all the doggies do it too
   
 Waving to my neighbors and waving to my friends  
 When I have to tinkle I just do it through the fence  
+
+#### c:  
+I got to go! ... go!
+
+### b: [ am c g - ]
+when i go outside i get sighs
+when i go in the potty i get high-fives...
 
 #### c:  
 I got to go! ... go!
@@ -37,3 +44,7 @@ I got to go! ...
   
 #### o: [f c \]  
 So let's go!  
+
+
+
+
